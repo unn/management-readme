@@ -6,8 +6,6 @@ I’m excited to get to know you more organically through chats, but a few up-fr
 I’m here to help and support you, to set context for what you’re working on, and to advocate for you and the team with the rest of the company.
 -----------------------------------------------------------------------------------------------------------------------------------------------
 
-—-
-
 My availability looks scary, but I’m here for you!
 --------------------------------------------------
 
