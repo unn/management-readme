@@ -1,4 +1,4 @@
-Dave, as your manager
+Hi, I'm Dave
 =====================
 
 I’m excited to get to know you more organically through chats, but a few up-front things about my philosophies that might be helpful.
